@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @L-Quantum001
+- 👀 I’m interested in ... nothing bruh
+- 🌱 I’m currently learning ... c++ and c#
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... fuck you
